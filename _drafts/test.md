@@ -64,7 +64,7 @@ Expect to pay out of pocket though, most of these doctors do not accept insuranc
 
 As with anything else in life, your attitude when you go in will play a huge role in how things go for you. I find that many people I talk to about the program have attitudes that need to be adjusted. If you walk in demanding this or that, no one, not even a doctor, is going to take anything you say with any sort of compassion. Do your research for the state you live in. If you live in New Jersey, a doctor isn’t going to care about what you read happens in California. Every state is different. The laws very from state to state and no doctor wants to be told how to do their job. When you meet with your doctor, you should call ahead and ask what documentation you need. I needed to bring all my medical files with me. I happen to have mine already because I had gone to court for my disability hearing. My records are about as thick as a phone book and my failed medications was several pages long. The more information you can bring with you at the time you meet with your doctor, the better. 
 
- 
+ ![](/uploads/2018/02/17/building.jpg)
 
 There is no such thing as too much medical information. If you are in and out of the hospital, keep those discharge papers or go to records and request them, they are just as valuable as your records from your primary or any of your specialists. KEEP EVERYTHING you get from any medical professional. A medical marijuana doctor wants you to be well, but their goal is to get you taking as few prescriptions as possible. I was able to get off all the medications I was taking, but that isn’t typical for everyone, so don’t fret. 
 
@@ -74,4 +74,4 @@ If you don’t have a qualifying condition as of yet, don’t lose heart, my fri
 
  
 
-LJop 
+LJop ![](/uploads/2018/02/17/neurons.jpg)
