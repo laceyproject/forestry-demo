@@ -41,11 +41,10 @@ The cream itself is white as snow. It is essentially odorless. I think it smells
 
 The label says soothing and hydrating, but that is an understatement. When I met with Kym and she gave me the product to try, she said it is labeled an eye cream, but she personally uses it as a full-face cream. I tried it under my eyes first, as directed on the label, but that was short lived because it felt so good, I had to use it on my whole face! You can feel the cream melt as it penetrates your skin. It has an almost cooling effect, but not like the usual menthol cooling most skincare products have. The cream doesn’t leave an oily, greasy or heavy film on your face. If face makeup is your thing, you can easily apply it on top of the cream no problem.  
 
- 
+> #    
+>   
+> "_Hello sunshine"_
 
 **Overall** 
 
 I love this product. Not to make any medical claims, but I get small cysts along my hair line and on my face. The doctor gives me a lotion to put on that dries out my face, its full of chemicals and I HATE using it, but I noticed that with regular use of this cream, I saw less cyst flareups on my face, than when I was lazy and used the cream less regularly. This is a product I would highly recommend to men and women alike, since it is odorless and leaves no residue on your face, you can wear it barefaced. It leaves a sense of rejuvenation that I haven't experienced with even the most expensive or top branded products I have tried in the past, and knowing that this product is crafted so thoughtfully and with such natural and high-quality ingredients makes me feel even that much more excited to tell my friends about it. It truly is CannaBliss... A blissful face experience! 
-
->   
-> Hello sunshine
