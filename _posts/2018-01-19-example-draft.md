@@ -33,7 +33,7 @@ Every ingredient in this product was chosen not only for its high quality, but a
 
 The cream itself is white as snow. It is essentially odorless. I think it smells a little like paste, which brings me back to childhood and usually brings a smile to my face, but I'm a bit of a nostalgia addict these days. The cream is so soft and smooth. Some eye creams can have an oily or gloopy consistency and this is a thick paste like cream that seems to melt into your skin as you gently rub it under your eyes. A little goes a long way! I have had the same jar since June and I’ll probably have it until Christmas.  
 
- 
+ ![](/uploads/2017/11/13/biotech.png)
 
  
 
